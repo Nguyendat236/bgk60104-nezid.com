@@ -1,1 +1,0 @@
-# bgk60104-nezid.com
